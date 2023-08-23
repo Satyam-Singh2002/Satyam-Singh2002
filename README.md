@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **satyamsingh181102@gmail.com**
 
-- 📄 Know about my experiences [https://rb.gy/890bz](https://rb.gy/890bz)
+- 📄 Know about my experiences [https://t.ly/WQKBJ](https://t.ly/WQKBJ)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
